@@ -9,4 +9,11 @@ To complete this goal, Thanos set about tracking down the Infinity Stones, as th
 * Genius-Level Intellect
 * Master Tactician
 * Master Combatant
+* Master Finger-flicker
 * Sword Mastery
+
+
+Strives to make the universe
+
+> Perfectly balanced,  
+> as all things should be.
