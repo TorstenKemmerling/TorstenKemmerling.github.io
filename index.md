@@ -17,3 +17,6 @@ Strives to make the universe
 
 > Perfectly balanced,  
 > as all things should be.
+
+
+<img src="https://www.shutterstock.com/de/image-photo/detroit-usa-mar-30-2020-lego-1687835302"/>
