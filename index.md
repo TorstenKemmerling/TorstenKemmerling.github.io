@@ -19,4 +19,4 @@ Strives to make the universe
 > as all things should be.
 
 
-<img src="https://www.shutterstock.com/de/image-photo/detroit-usa-mar-30-2020-lego-1687835302"/>
+<img src="https://image.shutterstock.com/image-photo/detroit-usa-mar-30-2020-600w-1687835302.jpg"/>
